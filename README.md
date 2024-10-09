@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yumemiruu
+- 👀 I’m interested in drawing, arts, and i guess some programming (as in 42's C piscine, a lil bit of python and html (for legal reasons html is not a programming language))
+- 🌱 I’m currently learning C
+- 📫 How to reach me? use my discord @yumemiruu_ or just...be curious
+- ⚡ Fun fact: im so very sleepy all the time i wish i could sleep and do my stuff at the same time 
